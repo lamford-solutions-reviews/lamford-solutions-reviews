@@ -7,7 +7,7 @@ The online trading market continues to evolve, becoming more complex and technol
 
 ### **Client Feedback on Lamford Solutions**
 
-No review is complete without assessing the experience of real users. Reviews of Lamford Solutions regularly appear on specialized forums, social networks, and blogging platforms (Blogspot, Reddit, Medium). The most typical reviews of Lamford Solutions look like this:
+No review is complete without assessing the experience of real users. Reviews of Lamford Solutions regularly appear on specialized forums, social networks, and blogging platforms ([IMDb](https://www.imdb.com/list/ls4156163807), [HackMD](https://hackmd.io/8VhgyxthTuuPar5Q0c1QcQ), [Medium](https://medium.com/@ozanomesut851/lamford-solutions-reviews-why-its-not-a-scam-from-a-technical-perspective-6b3651fb8b2e?postPublishedType=repub)). The most typical reviews of Lamford Solutions look like this:
 
 - "Support is like a good teacher. They don’t just answer, they explain the logic behind the processes. This is the first time I’ve seen such an approach." (Andrew, London)  
 - "I was surprised that recommendations were truly individualized. They are tailored to my risk profile, not just a generic approach." (Luka, Riga)  
